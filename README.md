@@ -1,1 +1,0 @@
-# Vinnovate-Application
